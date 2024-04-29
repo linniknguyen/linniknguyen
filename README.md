@@ -1,3 +1,4 @@
+[![](https://visitcount.itsvg.in/api?id=linniknguyen&label=Profile%20Views&pretty=false)](https://visitcount.itsvg.in)
 # 💫 About Me:
 🔭 I’m currently working on Quantitative Researcher <br>🤝 I’m looking for help with Stas/DS<br>🌱 I’m currently learning M.S Applied Mathematics<br>💬 Ask me about everything <br>⚡ Fun fact: I am crazy :)
 
